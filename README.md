@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-LATC950724HSRRRR05
+LATC950724HSRRRR05
